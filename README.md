@@ -1,5 +1,5 @@
-                             -My wierd README-
-
+Dont read me XD
+  
   Hi, I’m nova (not my real name, just a name made with a random word generator)😁
 
 👀 I’m interested in ... coding - i know a bit of python and i've been fidgeting with scratch for a few years🧐
