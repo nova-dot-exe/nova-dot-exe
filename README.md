@@ -2,10 +2,7 @@ Dont read me XD
   
   Hi, I’m nova (not my real name, just a name made with a random word generator)😁
 
-👀 I’m interested in ... coding - i know a bit of python and i've been fidgeting with scratch for a few years🧐
- I’m currently taking CS50's intro to computer science course 🏫
-
-my discord username is        novaischill      (no numbers)
+my discord username is        lazy_nova (no numbers)
 if you want to reach me =)
 
 <!---
