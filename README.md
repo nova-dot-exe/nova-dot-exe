@@ -1,8 +1,8 @@
-Dont read me XD
+Dont read me 
   
   Hi, I’m nova (not my real name, just a name made with a random word generator)😁
 
-my discord username is        lazy_nova (no numbers)
+my discord username is        nova.exeee (no numbers)
 if you want to reach me =)
 
 <!---
